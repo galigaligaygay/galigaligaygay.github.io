@@ -1,1 +1,0 @@
-# galigaligaygay.github.io
